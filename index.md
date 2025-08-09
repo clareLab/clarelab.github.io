@@ -1,6 +1,6 @@
 ## About Me
 
-- I came from China, living in Italy, potentially moving to Canada, Germany or Japan.
+- I came from China (Shenzhen), living in Italy, potentially moving to Canada, Germany or Japan.
 - I speak Chinese and English. I am learning Italian and Japanese, also plan to learn French, German and Swedish.
 - I develop games and write articles about immigration as well as experience related to language learning.
 
